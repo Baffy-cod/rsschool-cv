@@ -1,1 +1,1 @@
-#https://Baffy-cod.github.io/rsschool-cv/cv
+#https://Baffy-cod.github.io/rsschool-cv/cv/
